@@ -15,3 +15,5 @@
       <img src="https://i.pinimg.com/1200x/61/78/b4/6178b4c5eded367e74b42146523fbae2.jpg" alt="xingyun4" width="100%">
   </tr>
 </table>
+</p>
+      Honestly With every day, i suffer from constant anxiety and the fear of always doing my best— I do so because i think it's right, but i have never thought that those worries of mine would just dissapear now that i have seen these two characters, without even trying to overexhaggerate what I'm saying, these two have genuinely made my life lighter and more brighter, for my future and for the present that is talking today. I took my time reading through fluff about these two to make me feel better after being so upset earlier, and it worked. Instead of my smile being upside down and tears forming from being sad, it turned sad tears into happy tears. I was so inspired by their lifestyle that everyday i wish for my life to be like theirs. 
