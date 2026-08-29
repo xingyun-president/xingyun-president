@@ -17,3 +17,5 @@
 </table>
 </p>
       Honestly With every day, i suffer from constant anxiety and the fear of always doing my best— I do so because i think it's right, but i have never thought that those worries of mine would just dissapear now that i have seen these two characters, without even trying to overexhaggerate what I'm saying, these two have genuinely made my life lighter and more brighter, for my future and for the present that is talking today. I took my time reading through fluff about these two to make me feel better after being so upset earlier, and it worked. Instead of my smile being upside down and tears forming from being sad, it turned sad tears into happy tears. I was so inspired by their lifestyle that everyday i wish for my life to be like theirs. 
+
+Want to be crowned or complimented? just be a chongyun or xingqiu skin, and ill fall down on my knees
