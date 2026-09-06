@@ -24,5 +24,8 @@
 </table>
 </p>
 <img width="480" height="640" alt="image" src="https://github.com/user-attachments/assets/a70e18e0-ad8b-41bc-9c9c-6413ba1da5ed" />
+<div>
 Happy birthday chongyun, i really love youu.. so muchh!! I feel like a proud father seeing you grow up, its your 7th bday as a character from genshin, and im really happy you existed<33 Im sure you will look as pretty as before. GOSSH ILYSM YUN!! have a drawing of you as a doctor hehe... <33 ADGKAEJHDBKELFKA
+  <DIV></DIV>
+  <div></div>
 Want to be crowned or complimented? just be a chongyun or xingqiu skin, and ill fall down on my knees
