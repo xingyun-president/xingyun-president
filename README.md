@@ -27,5 +27,9 @@
 <div>
 Happy birthday chongyun, i really love youu.. so muchh!! I feel like a proud father seeing you grow up, its your 7th bday as a character from genshin, and im really happy you existed<33 Im sure you will look as pretty as before. GOSSH ILYSM YUN!! have a drawing of you as a doctor hehe... <33 ADGKAEJHDBKELFKA
   <DIV></DIV>
+  <img width="480" height="480" alt="image" src="https://github.com/user-attachments/assets/3adf9feb-549b-4e0c-8d6d-3fa52e6cec73" />
+<div></div>
+  ‎Hppy birthday my dearest main!! CHONGYUNN I SWEARR, i love you so much, if only i have enough money, i would definitely whale just for you! I wanted to be the first to ever greet you a happy birthday, but i know that i cant because theres plenty of people who will do that first.. Thank you so much for being there, even if you are just purely fictional, Just seeing that you actually exist as a character makes me so happy. i can't describe just how thankful i am to hoyoverse for ever making such a character like you— You are my favorite of all fvaorites and will always be. CHONGYUNN WHDHJSKDKS you hold a very SPECIAL place in my heart, Even if i have new interests, i know ill always come back to you.. You may be just purely fictional, but i love you entirely for that. i know it's kind of wierd for me to actually rant it out here, but ilysm/P as a son and as my favorite character! I'll see you in genshin impact, and i get moved to tears! You're so adorable, i love your character, your design, your personality, just overall chongyun! Thank you so much for making me happy when i was at my lowest. HAPPY BIRTHDAY MY DEAREST MAINN CHONGYUNN!!! MY ICE BOYYMWAMWAMWAA
+
   <div></div>
 Want to be crowned or complimented? just be a chongyun or xingqiu skin, and ill fall down on my knees
