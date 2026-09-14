@@ -2,7 +2,21 @@
 <img width="250" height="200" alt="tumblr_fea057d327f4aa6054f5a15bc7a47006_489cdf23_1280" src="https://github.com/user-attachments/assets/9f2e36a1-ef76-46c0-b879-9dfe4035bab3" />
 <img width="200" height="200" alt="tumblr_ed63ff6f679caa8ae7fee2f0353399f1_ff9ef7a9_1280" src="https://github.com/user-attachments/assets/eb03c098-ec93-43f4-a0c1-7d153a4bb6bd" />
 
-<table>
+  <div>
+  <br>
+<html>
+ <p align="left">
+  <img src="https://readme-typing-svg.herokuapp.com?font=Cormorant+Garamond&size=20&duration=3500&pause=1200&color=3e637d&center=true&vCenter=true&width=700&lines=My+dear,+yunyun.;+will+you+hate+me+for+leaving?;+Or+will+you+forget+me?;+will+you+wait+for+me?;+....;+please+let+me+go.;+I'm+sorry." />
+</p>
+</div>
+<div>  <br>
+<html>
+ <p align="right">
+  <img src="https://readme-typing-svg.herokuapp.com?font=Cormorant+Garamond&size=20&duration=3500&pause=1200&color=lightblue&center=true&vCenter=true&width=700&lines=To+My+dearest+xingqiu..;+you+never+left+when+I+needed+you.;+I+will+never+forget+you.;+....;+I+will+wait+forever+if+that's+how+long+you+want+me+to+wait.;+Please+don't+leave+me+here..;+please..." />
+</p>
+</div>
+  
+  <table>
   <tr>
     <!-- Right Column: Your long text -->
     <td width="60%" valign="top">
