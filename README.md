@@ -45,9 +45,27 @@
 <div>
 Happy birthday chongyun, i really love youu.. so muchh!! I feel like a proud father seeing you grow up, its your 7th bday as a character from genshin, and im really happy you existed<33 Im sure you will look as pretty as before. GOSSH ILYSM YUN!! have a drawing of you as a doctor hehe... <33 ADGKAEJHDBKELFKA
   <DIV></DIV>
-  <img width="480" height="480" alt="image" src="https://github.com/user-attachments/assets/3adf9feb-549b-4e0c-8d6d-3fa52e6cec73" />
-<div></div>
-  ‎Hppy birthday my dearest main!! CHONGYUNN I SWEARR, i love you so much, if only i have enough money, i would definitely whale just for you! I wanted to be the first to ever greet you a happy birthday, but i know that i cant because theres plenty of people who will do that first.. Thank you so much for being there, even if you are just purely fictional, Just seeing that you actually exist as a character makes me so happy. i can't describe just how thankful i am to hoyoverse for ever making such a character like you— You are my favorite of all fvaorites and will always be. CHONGYUNN WHDHJSKDKS you hold a very SPECIAL place in my heart, Even if i have new interests, i know ill always come back to you.. You may be just purely fictional, but i love you entirely for that. i know it's kind of wierd for me to actually rant it out here, but ilysm/P as a son and as my favorite character! I'll see you in genshin impact, and i get moved to tears! You're so adorable, i love your character, your design, your personality, just overall chongyun! Thank you so much for making me happy when i was at my lowest. HAPPY BIRTHDAY MY DEAREST MAINN CHONGYUNN!!! MY ICE BOYYMWAMWAMWAA
+ 
+  OFFICIAL ARTS!!
+  <div>
+   <img width="200" height="200" alt="Xingqiu_Birthday_2020" src="https://github.com/user-attachments/assets/bcee2847-3d5b-4cad-be6b-5572d1180a1b" />
+<img width="200" height="200" alt="Xingqiu_Birthday_2021" src="https://github.com/user-attachments/assets/9f08551f-9124-4619-ad21-6acf8c2f7b4b" />
+<img width="200" height="200" alt="Xingqiu_Birthday_2022" src="https://github.com/user-attachments/assets/fe793c1f-3ba6-4e6d-9a76-9347e49b4f42" />
+<img width="200" height="200" alt="Xingqiu_Birthday_2023" src="https://github.com/user-attachments/assets/b6c6a8a6-7460-4216-96aa-f4559dcd1ad7" />
+<img width="200" height="200" alt="Xingqiu_Birthday_2024" src="https://github.com/user-attachments/assets/880e4a30-1497-4dfd-951c-7b461ce1ba86" />
+<img width="200" height="200" alt="Xingqiu_Birthday_2025" src="https://github.com/user-attachments/assets/1647b864-3536-426f-bef0-9655e5118a31" />
+<div>
+<img width="200" height="167" alt="Chongyun_Birthday_2020" src="https://github.com/user-attachments/assets/b59d7967-7428-41ec-a3f8-ef8c2c8d8f1b" />
+<img width="200" height="200" alt="Chongyun_Birthday_2021" src="https://github.com/user-attachments/assets/ac15fce1-74d1-4f74-89ae-eb0d8b44f072" />
+<img width="200" height="200" alt="Chongyun_Birthday_2022" src="https://github.com/user-attachments/assets/4045531b-be3b-4284-8e53-97522af56d6f" />
+<img width="200" height="200" alt="Chongyun_Birthday_2023" src="https://github.com/user-attachments/assets/4ec6f9a7-5965-4316-bd92-8d19acd16002" />
+<img width="200" height="200" alt="Chongyun_Birthday_2024" src="https://github.com/user-attachments/assets/b3a4a6a7-bd6a-4a17-9feb-5cca742a1b8f" />
+<img width="200" height="200" alt="Chongyun_Birthday_2025" src="https://github.com/user-attachments/assets/8eec32c9-2335-492b-9224-435d5b24308d" />
+  <img width="200" height="200" alt="Chongyun_Birthday_2026" src="https://github.com/user-attachments/assets/454f95ab-1731-41b2-8163-c43f2e63a4c1" />
+<div>
+ https://shipping.fandom.com/wiki/Xingyun/Gallery (check this for xingyun gallery)
+</div>
+</div>
 
   <div></div>
 Want to be crowned or complimented? just be a chongyun or xingqiu skin, and ill fall down on my knees
