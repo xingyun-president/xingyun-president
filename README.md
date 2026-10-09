@@ -70,6 +70,8 @@ HAPPY BIRTHDAY XINGQIUU!! oh my god youre so pretty i cant even lie.. like omfg 
 <img width="200" height="200" alt="Chongyun_Birthday_2024" src="https://github.com/user-attachments/assets/b3a4a6a7-bd6a-4a17-9feb-5cca742a1b8f" />
 <img width="200" height="200" alt="Chongyun_Birthday_2025" src="https://github.com/user-attachments/assets/8eec32c9-2335-492b-9224-435d5b24308d" />
   <img width="200" height="200" alt="Chongyun_Birthday_2026" src="https://github.com/user-attachments/assets/454f95ab-1731-41b2-8163-c43f2e63a4c1" />
+ <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/e8eede1f-376e-4794-a45b-a51458add6ea" />
+
 <div>
  https://shipping.fandom.com/wiki/Xingyun/Gallery (check this for xingyun gallery)
 </div>
