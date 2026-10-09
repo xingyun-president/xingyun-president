@@ -46,7 +46,14 @@ I really am so obsessed with the two of them, I can't go a day without yapping a
 <div>
 Happy birthday chongyun, i really love youu.. so muchh!! I feel like a proud father seeing you grow up, its your 7th bday as a character from genshin, and im really happy you existed<33 Im sure you will look as pretty as before. GOSSH ILYSM YUN!! have a drawing of you as a doctor hehe... <33 ADGKAEJHDBKELFKA
   <DIV></DIV>
- 
+ <img width="2048" height="1536" alt="image" src="https://github.com/user-attachments/assets/e43de59b-bb91-47f8-a22b-f5964977a021" />
+HAPPY BIRTHDAY XINGQIUU!! oh my god youre so pretty i cant even lie.. like omfg please i really want you to know that i love you in every way possible.. not in a yume ship way but like genuinely i see xingiu and chongyun as my sons and i cannot be anymore happier to see xingqiu being 3 days before my birthday.. like genuinely its like its a christmas gift for me <33 i love them so much, please have a drawing of you MWAA><
+<div>
+
+
+
+
+</div>                         
   OFFICIAL ARTS!!
   <div>
    <img width="200" height="200" alt="Xingqiu_Birthday_2020" src="https://github.com/user-attachments/assets/bcee2847-3d5b-4cad-be6b-5572d1180a1b" />
